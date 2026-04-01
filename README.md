@@ -1,6 +1,7 @@
 # Hi, I'm Tanushree 👋
 
 **Enterprise AI Strategist. Working Mom. Technologist who grew from the code up.**
+https://tanushreepanigrahy.com/
 
 ---
 
